@@ -1,1 +1,1 @@
-# -psychological_test
+# psychological_test
